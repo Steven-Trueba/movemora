@@ -1,2 +1,2 @@
 # movemora
-Movemora Media Music and Art. By Gerdegotit and After
+Movemora Media Music and Art. By Gerdegotit and Afteralter.x
